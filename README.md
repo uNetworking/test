@@ -1,5 +1,3 @@
 # asdas
 
-
-
-![Untitled](https://github.com/user-attachments/assets/fec429ec-d605-46e6-b93a-74da7b231743)
+![Untitled](https://github.com/user-attachments/assets/17f30dd5-786b-4728-a10f-db49eebf665c)
